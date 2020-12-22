@@ -1,4 +1,6 @@
 ### hi
-i try to code and want to study it in the near future, but for now I play [rhythm games](https://osu.ppy.sh/users/8630110) :)
+i try to code and want to study it in the near future, but for now I play rhythm games :)
 
-![osu stats](http://lemmmy.pw/osusig/sig.php?colour=hex553088&uname=3zachm&pp=1&removeavmargin&flagshadow&darktriangles&opaqueavatar&onlineindicator=undefined&xpbar)
+twitter: [@3zachm](https://twitter.com/3zachm)
+discord: 3zachm#9999
+osu!: [3zachm](https://osu.ppy.sh/users/8630110)
