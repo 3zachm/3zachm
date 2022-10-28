@@ -1,4 +1,4 @@
-cs student trying to code, also play rhythm games a lot
+cs student at seattleu
 
 website: [3zachm.dev](https://3zachm.dev)\
 twitter: [@3zachm](https://twitter.com/3zachm)\
